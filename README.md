@@ -49,11 +49,11 @@ skin copying & inspo, indefinate No. ♡ cuddles + hugs, OK. ﹗彡
 
 
 
-  did + autistic diagnosed
+ 
   
      
      
      
      
-✦  i just want to find genuine people like me    ،      :  🌸
+ did sys + autistic diagnosed ✦  i just want to find genuine people like me    ،      :  🌸
   🍵   ∿     im generally kind, if you're kind to me too. 
