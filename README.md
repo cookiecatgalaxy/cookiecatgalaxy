@@ -35,7 +35,7 @@ skin copying & inspo, indefinate No. ♡ cuddles + hugs, OK. ﹗彡
   
    ╰◦⋆˚｡ & if you make fun of my religeon, my Father God .. 
 
-  i won't tolerate blasphemy against my God. please, think, ask for forgiveness, and repent.
+  i won't tolerate blasphemy against my God. please think, ask for forgiveness, and repent.
   
 
 
