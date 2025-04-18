@@ -2,7 +2,8 @@
 
 ㅤㅤㅤ꒰ㅤbsweetㅤorㅤbittersweet ౨ৎㅤ꒱
 ㅤㅤㅤshe/her  ISTP  ✚  7teen
-ㅤㅤㅤ𐔌ྀ ‧ 𐙚ྀㅤchristian , (2-5) age regressorㅤ♡
+ㅤㅤㅤ𐔌ྀ ‧ 𐙚ྀㅤchristian , (2-5) 
+age regressorㅤ♡
 
 
 
