@@ -44,7 +44,7 @@ skin copying & inspo, indefinate No. ♡ cuddles + hugs, OK. ﹗彡
 
 ─── ꒰ঌ † ໒꒱
    
-  —﹙🍡﹚⑅   at the moment im heavily into rise of the brave tangled dragons, doawk, tarzan, aphmau, & encanto (brumira), and alex g   ♡   ₊ 
+  —﹙🍡﹚⑅   at the moment im heavily into rise of the brave tangled dragons, doawk, tarzan, aphmau, & encanto , and alex g   ♡   ₊ 
 
 
 
