@@ -1,35 +1,34 @@
-![alt text](https://i.pinimg.com/736x/b9/61/01/b961017e36bde645793530832b459b4a.jpg)
+![alt text](https://i.pinimg.com/1200x/90/5b/0d/905b0d3fe1104c9f64a1cd070cbff977.jpg)
+꒰ㅤsebastian / nene / star ౨ৎㅤ꒱ ㅤㅤㅤshe/him  ISTP  ✚  8teen ㅤ
 
-ㅤㅤㅤ꒰ㅤbsweetㅤorㅤbittersweet ౨ৎㅤ꒱ ㅤㅤㅤshe/him  ISTP  ✚  8teen ㅤㅤㅤ𐔌ྀ ‧ 𐙚ྀㅤchristian , pet/age regressorㅤ♡
+ㅤㅤ𐔌ྀ ‧ 𐙚ྀㅤchristian , high funct. autisticㅤ♡
 
-꒰୨୧◞ 。straight⠀.ᐟ⠀bipoc⠀+ unschooled NEET ₊ ˚⊹ ɞ⠀.⠀central timezone ﾉ⠀taken , wolf/chimp therian ﹗ ໒꒱۪
+꒰୨୧◞ 。unlabeled⠀.ᐟ⠀bipoc⠀+ unschooled NEET ₊ ˚⊹ ɞ⠀.⠀central timezone ﾉ⠀taken + wolf/chimp therian ﹗ ໒꒱۪
 
 skin copying & inspo, indefinate No. ♡ cuddles + hugs, OK. ﹗彡
 
-❝ publically anti-harassment ! ❞ • special interest in animation (+ & Christianity) !! ╰ ★ aspiring cartoonist & guitarist
+❝ publically anti-harassment ! ❞ • special interest in cowboys, werewolves, horses (+ & Christianity) !! ╰ ★ aspiring cartoonist & guitarist , selfshipper
 
 ─── ꒰ঌ † ໒꒱
 
-please dni if youre.. — 🕯 under 16, pro harassment, pro censorship, an active abuser ⊹ ⤹ ꒰ if IM in your dni and you make it an objective to interract w/ me ꒱ ౨ৎ
+please dni if youre.. — 🕯 under 18, pro harassment, pro censorship, an active abuser ⊹ ⤹ ꒰ if IM in your dni and you make it an objective to interract w/ me ꒱ ౨ৎ
 
 ╰◦⋆˚｡ & if you make fun of my religeon, my Father God ..
 
-i won't tolerate blasphemy against my God. please think, ask for forgiveness, and repent. and please don't interact if you're shipping anyone in the bible.
+i won't tolerate blasphemy against my God, and please don't interact if you're shipping anyone in the bible.
 
 ─── ꒰ঌ † ໒꒱
 
-—﹙🍡﹚⑅ at the moment im heavily into anything disney, rise of the brave tangled dragons/crossovers, doawk, ANYthing encanto, tarzan, and stitch related, & aphmau ♡ ₊
+—﹙🍡﹚⑅ at the moment im heavily into anything disney, rise of the brave tangled dragons/crossovers, svtfoe, aphmau, lolirock, and aladdin ♡ ₊
 
-✦ i just want to find genuine people like me ، : 🌸 🍵 ∿ im generally kind, if you're kind to me too. i may not look or act the part but i'm also a metalhead ! ><
+✦ i just want to find genuine people like me ، : 🌸 🍵 ∿ im generally kind, if you're kind to me too.
 
 note; please do not simp for any biblical figures i make ! -- i think it's a bit odd.
 
-i only make them for fun ! simping for ocs; OK ! + ppl over the age of 18 that think ragebaiting is fun; pls dni, respectfully; get a job or find God. Making people miserable isn't funny.
+i only make them for fun ! simping for ocs; OK ! + ppl over the age of 18 that think ragebaiting is fun; pls dni, respectfully. Making people miserable isn't funny, & people that're doing disrespectful portrayals of Jesus on ponytown pls dni !
 
-🐛 if you're reading this i hope you're okay 🐛
+🐛 if you're reading this; YOU are loved. No matter who you are.🐛
 
 remember God loves you, and Jesus died for you !
 
 No matter what happens. God, will always be there for you.
-
-Repent and He will forgive ! 𓏲 ๋࣭  ࣪ ˖
