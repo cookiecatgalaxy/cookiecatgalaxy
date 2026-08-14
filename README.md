@@ -1,8 +1,8 @@
 ![alt text](https://i.pinimg.com/736x/b9/61/01/b961017e36bde645793530832b459b4a.jpg)
 
-ㅤㅤㅤ꒰ㅤbsweetㅤorㅤbittersweet ౨ৎㅤ꒱ ㅤㅤㅤshe/her  ISTP  ✚  7teen ㅤㅤㅤ𐔌ྀ ‧ 𐙚ྀㅤchristian , pet/age regressorㅤ♡
+ㅤㅤㅤ꒰ㅤbsweetㅤorㅤbittersweet ౨ৎㅤ꒱ ㅤㅤㅤshe/him  ISTP  ✚  8teen ㅤㅤㅤ𐔌ྀ ‧ 𐙚ྀㅤchristian , pet/age regressorㅤ♡
 
-꒰୨୧◞ 。straight⠀.ᐟ⠀bipoc⠀+ unschooled NEET ₊ ˚⊹ ɞ⠀.⠀central timezone ﾉ⠀single + crushing , wolf/chimp therian ﹗ ໒꒱۪
+꒰୨୧◞ 。straight⠀.ᐟ⠀bipoc⠀+ unschooled NEET ₊ ˚⊹ ɞ⠀.⠀central timezone ﾉ⠀taken , wolf/chimp therian ﹗ ໒꒱۪
 
 skin copying & inspo, indefinate No. ♡ cuddles + hugs, OK. ﹗彡
 
